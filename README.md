@@ -1,5 +1,5 @@
 - Hello! My name is Isha 
-- 👀 Living a passionate mind with a lot of creativity. 
+- 👀 Living with a passionate mind with a lot of creativity. 
 - 🌱 I’m currently learning web development and playing guitar.
 - 💞️ I'm looking to connect with visionary people to grow in work life.
 - 📫 How to reach me ishauptodesign@gmail.com
